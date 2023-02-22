@@ -1,0 +1,2 @@
+# TIRO-CON-ARCO-PICO-CLASE28-parte-2
+parte 2
